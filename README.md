@@ -1,1 +1,1 @@
-# Awesome-St-Patrick-s-Day-Gifts
+Awesome St Patrick’s Day Gifts - St. Patrick’s Day is a festival of sorts celebrated all around the world. Although traditionally us Irish celebrate this by drinking whiskey, it has evolved into a tradition where people enjoy wearing green clothing and accessories and don’t take themselves too seriously. However, in recent years there has been a sea change in this attitude as people have gone back to the roots of St. Patrick’s Day which is all about celebrating everything Irish. - https://lowpriceshirt.com/the-holiday-shop/st-patricks-day/
